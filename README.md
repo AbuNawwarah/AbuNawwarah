@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @AbuNawwarah
 - 👀 I’m interested in web3 job and activities.
 - 🌱 I’m currently learning some courses on web3.
-- 💞️ I’m looking to collaborate on Working with Serious projwcts.
+- 💞️ I’m looking to collaborate on Working with Serious projects.
 - 📫 How to reach me @umarfarukrk85@gmail.com or @UmarFarukRkebe on X(Twitter)
 - 😄 Pronouns: AbuNawwarah 
 - ⚡ Fun fact: ...
